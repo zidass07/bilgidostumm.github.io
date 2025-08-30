@@ -1,1 +1,0 @@
-# bilgidostumm.github.io
